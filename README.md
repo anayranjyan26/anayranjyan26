@@ -1,9 +1,8 @@
 ## Hi there 👋
 
-I love sushi
+S U S H I 
 
- fun fact: My cousin is my cousin milen
+I love sushi 
+you will always fidn me eating sushi 
 
- 😛😑😛😍🤣🤐😀😃😴🥺😄😁🥲😈
-
- my sister is blood related to me 
+https://guide.michelin.com/us/en/california/us-los-angeles/restaurants/sushi 
