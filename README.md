@@ -1,2 +1,3 @@
 ## Hi there 👋
-I love Garik
+
+My dad says he's going to put me to time out if I don't walk my goldfish
